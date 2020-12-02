@@ -1,4 +1,4 @@
-there are only two *_e_*s in my name
+there are only two *e*s in my name
 
 [guru portal](https://guru.gndec.ac.in)
 
