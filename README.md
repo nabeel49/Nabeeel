@@ -10,9 +10,9 @@ Skipping the rest, _Art_ is my passion, i like to sketch or paint whatever idea 
 
 -![2](93590070_256002488876607_6349157290146528570_n.jpg)
 
--[3](djwgudfbw.jpeg)
+-![3](djwgudfbw.jpeg)
 
--[4](32283760-d567-4692-a65b-dcce2c358a02.jpg)
+-![4](32283760-d567-4692-a65b-dcce2c358a02.jpg)
 
 -If you wanna follow my [instagram page](https://www.instagram.com/thy_is_art/) :)  
 
