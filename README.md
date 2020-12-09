@@ -1,7 +1,7 @@
 ## Welcome!
                                                                                  
 thanks for visiting :)                                                                                                             
------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+                                                               ![0](chain.gif)
 
 I'm *Nabeel Farooqui*, probably the first time you ever heard this name and i hope you pronounced it well. 
 
