@@ -1,7 +1,7 @@
 ## Welcome!
                                                                                  
 thanks for visiting :)                                                                                                             
-                                                               ![0](chain.gif)
+ ![0](chain.gif) ![00](chain.gif) ![000](chain.gif)
 
 I'm *Nabeel Farooqui*, probably the first time you ever heard this name and i hope you pronounced it well. 
 
@@ -18,3 +18,4 @@ Skipping the rest, _Art_ is my passion, i like to sketch or paint whatever idea 
 Music is one of my hobbies, i enjoy singing, some of the music instruments that i find interesting are - Guitar, Drums and Bass. I kinda listen to all kinds of music but i hate kpop, and i hope you do too. Some of my favourite genres are - RnB and Soul, Metal, Progressive Metal, Hip Hop and Folk. I like anime too, always end up binge watching.
 
 Guess that's enough, thanks for going through it!
+ ![0](chain.gif) ![00](chain.gif) ![000](chain.gif)
