@@ -12,7 +12,8 @@ The bald guy is not conscious enough to realise that he himself is being cooked.
 The idea of this one is that a person is being engulfed by his negative thoughts. The starts represent night time, usually when these thoughts occur. 
 -![3](32283760-d567-4692-a65b-dcce2c358a02.jpg)
 The devil has been shown burning in flames, the sun and the moon are shown below tied together with a chain.
--![4](20001020210452_006.jpg)
+-![4](20001020210452_0062222.png)
+-![5](
 
 
 -Buy clothing and other accessories designed by me [RedBubble](https://www.redbubble.com/people/thy-is-art/shop/) :)
