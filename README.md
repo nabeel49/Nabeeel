@@ -2,9 +2,9 @@
                                                                                                             
  ![0](chain.gif)![00](chain.gif)
 
-I'm *Nabeel Farooqui*, probably the first time you ever heard this name and I hope you pronounced it well. 
+I'm *Nabeel Farooqui*
 
-Skipping the rest, ✨ _Art_ ✨ is my passion, I like to sketch or paint whatever idea comes into my mind. Sometimes I write, although not very good at it. I like designing and making stuff too. I'll drop some of my artworks down below for you to check 'em out -->
+✨ _Art_ ✨ is my passion, I like to sketch or paint whatever idea comes into my mind. Sometimes I write, although not very good at it. I like designing and making stuff too. I'll drop some of my artworks down below for you to check 'em out -->
 
 -![1](IMG_20210815_182202_243.jpg) 
 -![2](162984232_848792485671252_5256759610403153998_n.jpg) 
@@ -20,8 +20,7 @@ Buy clothing and other accessories designed by me on [RedBubble](https://www.red
 
 If you wanna follow my [instagram page](https://www.instagram.com/thy_is_art/) :)  
 
-Music is one of my hobbies, I enjoy singing, some of the music instruments that I find interesting are - Guitar, Drums and Bass. I kinda listen to all kinds of music but i hate kpop, and I hope you do too. Some of my favourite genres are - RnB and Soul, Metal, Progressive Metal, Rap, Post Rock, Hip Hop and Folk. I like anime too, always end up binge watching.
-
+Music is one of my hobbies, I enjoy singing. I kindof listen to all kinds of music but i hate kpop, and I hope you do too.
 Guess that's enough, thanks for going through it!
 
  ![0](chain.gif)![00](chain.gif)
